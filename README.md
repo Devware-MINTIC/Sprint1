@@ -8,3 +8,8 @@ Luis Miguel Mellizo Fernández
 23 años
 Ingeniero de sistemas
 Popayán - Cauca
+
+Lina Katherine Arias Ascencio
+25 años
+Estudiante de Ingeniería en automatización
+Cundinamarca - Bogotá DC
