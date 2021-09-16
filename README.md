@@ -18,3 +18,8 @@ Luis Felipe López Pardo
 23 años
 Estudiante de Ingeniería Electrónica y Telecomunicaciones
 Popayán - Cauca
+
+César Andrés Sandoval Muñoz
+27 años
+Estudiante de Ingeniería Electrónica y Telecomunicaciones
+Popayán - Cauca
