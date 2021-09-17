@@ -23,3 +23,8 @@ César Andrés Sandoval Muñoz
 27 años
 Estudiante de Ingeniería Electrónica y Telecomunicaciones
 Popayán - Cauca
+
+Jessica Johana Arias Ascencio
+27 años
+Ingeniera Ambiental y Sanitaria
+Bogotá DC
